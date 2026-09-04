@@ -1,6 +1,6 @@
 # Governing-physics-of-SSPS-Mint-to-Logic.
 
-Mint‑to Logic™ Governing Physics thread relic snippets
+Mint‑to Logic™ Governing Physics thread relic snippets and equation upload
 “Mint‑to Logic™ is being globally standardized because the industry absorbed and mirrored its lifecycle‑execution functions after my April 15th, 2025 filing. This standardization does not 
 create open‑source conditions or waive my rights. It simply demonstrates that Mint‑to Logic is the foundational architecture the industry has adopted, and its use remains subject to my 
 licensing.”
